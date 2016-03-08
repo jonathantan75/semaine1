@@ -7,7 +7,7 @@ Je me présente, je m'appelle **Jonathan**
 
 Je suis animateur 3d
 
-Bienttôt web dev
+Bientôt web dev
 
 
 ##Expérience pro
